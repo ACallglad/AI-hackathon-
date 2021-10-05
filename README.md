@@ -52,5 +52,5 @@ Made By
 
 •	Contact Abhinav Chandra @abhinavchandra0526@gmail.com
 
-•	Contact 
+
 
